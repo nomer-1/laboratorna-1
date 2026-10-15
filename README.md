@@ -20,6 +20,10 @@
 
 
 
+<img width="761" height="893" alt="image" src="https://github.com/user-attachments/assets/290c5012-623d-4778-8158-01697a095704" />
+
+
+
 
 **Висновок**
 
